@@ -194,4 +194,4 @@ Together, let’s shape the future of data-driven thinking 🚀
 
 ---
 
-Made with ❤️ by **THE PARTH SHAH**
+Made with 💙 by **THE PARTH SHAH**
